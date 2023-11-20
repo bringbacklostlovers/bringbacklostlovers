@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bringbacklostlovers
+👋 Hi, I’m @bringbacklostlovers
 - 👀 Attraction Spell
 - 🌱 Binding Spell
 - 💞️ Traditional Healer 
